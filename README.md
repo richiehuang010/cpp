@@ -1,3 +1,3 @@
 Ini adalah code untuk tutorial CPP RICHIE TEKNO
 Link VIdeo :
-https://www.youtube.com/watch?v=hun49uW2rjM
+https://www.opoopenyoutubepeyoutubeyoutubebepyoutubeyoutubeyoutube.com/watch?v=hun49uW2rjM
